@@ -1,1 +1,1 @@
-Tutaj będę umieszczał materiały przygotowane na studiach.
+Tutaj będę umieszczał materiały przygotowane na studiach w Akademii WSB w Dąbrowie Górniczej.
